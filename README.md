@@ -1,1 +1,2 @@
 # business-development
+There are different [Soluciones de RRHH](http://genera.cl) where you can get complete guidence as well as market value of your business.It revolves around offering guidance to organizations, helping them enhance their customer interactions, operational efficiency, and strategic planning. Business consultants can significantly impact customer experiences while also assisting businesses in achieving their goals, regardless of their size or industry.
